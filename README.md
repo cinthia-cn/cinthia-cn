@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...@cn_cindy_16 ig
 - 😄 Pronouns: ... cris, cinn, cindy, my love :3
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... 16/06/2006..... pure 6 
 
 <!---
 cinthia-cn/cinthia-cn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
